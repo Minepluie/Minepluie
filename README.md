@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Minepluie
 - 👀 I’m interested in Minecraft
-
+- 🏘️ I live in Rouen in Normandy
 
 - 🇫🇷 I'm french
 
