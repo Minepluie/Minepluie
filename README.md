@@ -3,6 +3,7 @@
 - 🏘️ I live in Rouen in Normandy
 
 - 🇫🇷 I'm french
+-I'm a speedcuber
 
 
 
