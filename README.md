@@ -4,7 +4,7 @@
 
 - 🇫🇷 I'm french
 
--I'm a speedcuber
+- I'm a speedcuber
 
 
 
